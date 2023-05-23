@@ -6,7 +6,8 @@
 
 💻 Workspace Setup
 Laptop ASUS TUF Gaming F15 FX506HM-HN018T
-![image_2023-05-23_233100411](https://github.com/Dechia2/Dechia2/assets/101776935/28c887cb-3e1f-4dc1-be57-101e1a5e2685)
+
+![image_2023-05-23_233151336](https://github.com/Dechia2/Dechia2/assets/101776935/af420d21-cfa4-4f13-bde8-0cf0a37563c6)
 
 ---
 
